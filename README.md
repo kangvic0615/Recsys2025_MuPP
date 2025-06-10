@@ -1,11 +1,7 @@
 # Recsys2025_MuPP
 
-![image](https://github.com/user-attachments/assets/aa93fc93-fedc-439e-bf06-6a8c67fabc4c)
+![image](https://github.com/user-attachments/assets/96804d07-ff25-408f-aa0d-146e42f9a2b8)
 
+![image](https://github.com/user-attachments/assets/b177685b-0b82-41bd-aab0-aea4659d63b1)
 
-![image](https://github.com/user-attachments/assets/71469219-73c4-49c2-80d9-778f4de4f839)
-
-![image](https://github.com/user-attachments/assets/f1d592bf-9069-4b63-a865-9edff9a5710d)
-
-<img width="1131" alt="image" src="https://github.com/user-attachments/assets/c6c2a918-b4c7-492c-ae90-350742d4d2ad" />
-
+![image](https://github.com/user-attachments/assets/a90b4a2b-9d3e-4627-a5cd-9cfee9cd02c6)
